@@ -15,3 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 https://roadmap.sh/card/tall/66c982f092ec1a8a730f17a1?variant=dark
+
+
+"I'm a newbie, help a rookie out and give me some knowledge."
+"If you're feeling frisky, lets be friends too. I would love to work with yall to develop both of our skills :)"
